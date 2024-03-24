@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alfacearlindo.
+- 👀 I’m interested in learning.
+- 💞️ I’m looking to collaborate on any project. If I don't know, I'll learn.
+- 📫 How to reach me alfacearlindo@gmail.com
+- ⚡ Fun fact: I draw well :)
